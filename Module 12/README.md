@@ -1,0 +1,7 @@
+[original penny juice](https://www.pennyjuice.com/)
+[rebranded penny juice](https://www.behance.net/gallery/40393701/Penny-Juice-Rebrand)
+[color hunt](https://colorhunt.co/)
+[adobe wheel](https://color.adobe.com/create/color-wheel)
+[Design Challenges on Daily UI](https://www.dailyui.co/)
+[Page inspirations on Collect UI](https://collectui.com/)
+[Canva](https://www.canva.com/)
